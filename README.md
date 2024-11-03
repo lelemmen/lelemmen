@@ -1,1 +1,1 @@
-Chemistry, physics, poetry, choral music, composition, songwriting
+Chemistry, quantum physics, poetry, choral music, composition, songwriting
